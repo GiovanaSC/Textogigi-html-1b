@@ -1,1 +1,25 @@
 # Textogigi-html-1b
+
+Como foram as minhas férias
+  Ainda quando faltava uma semana para as
+férias eu já estava muito ansiosa para 
+chegar logo , minha mãe também não via a 
+hora de chegar para não termos mais que 
+acordar tão cedo, então eu já tinha começado
+a pensar e a planejar coisas para mim fazer 
+durante as férias como por exemplo: ficar
+maratonando muitas séries, jogar muitos 
+jogos diferentes e planejando sair com os 
+amigos.
+  Quando chegou as férias eu acabei várias 
+séries, joguei muitos jogos no notebook e
+ acabei nem saindo com os meus amigos, eu 
+acabei nem saindo. Eu não fiz muita coisa 
+durante essas férias,  quando começou eu ia 
+dormir bem tarde mas sempre acabava acordando
+cedo, por causa que já estava acostumada a 
+acordar cedo para ir a escola, normalmente 
+eu ia dormir tarde assistindo séries, o resto
+do dia eu ficava jogando ou desenhando. É 
+claro que eu também ajudava a minha mãe nos 
+serviços de casa às sextas-feiras. 
